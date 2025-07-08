@@ -1,1 +1,1 @@
-**https://dodofurtado.github.io/beauty**
+https://dodofurtado.github.io/Beauty/
